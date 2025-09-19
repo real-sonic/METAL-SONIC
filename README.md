@@ -8,4 +8,5 @@ Heyhey!
 
 Once you get to know me really good...im a cool funny person! heh. 
 
-ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
+
+ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
