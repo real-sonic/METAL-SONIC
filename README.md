@@ -8,6 +8,8 @@ HIII!! Metal sonic me irl trust!!
 Heyhey!
 Once you get to know me really good...im a cool funny person! heh. 
 
-ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
+•⩊•  ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
 
-
+  **i love my friends !! YOU GUYS ARE SO PEAKK heh ....**
+  
+  
