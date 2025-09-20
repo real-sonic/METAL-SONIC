@@ -3,14 +3,16 @@
  <img scr=https://github.com/real-sonic/METAL-SONIC/blob/main/Untitled_Artwork.png?raw=true<img width="2100" height="1600" alt="image" src="https://github.com/user-attachments/assets/db2bcc94-0acd-4afe-ac12-76a0da26a671" /p>
 ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚
 
-Metal sonic me irl trust!!
+<p align=center>
+ <txt width=25>Metal sonic me irl trust!
 
-Heyhey!
+<p align=center>
+ <txt width=25>Heyhey!
 Once you get to know me really well...im a cool funny person! heh.
 
-  **i love my friends !! YOU GUYS ARE SO PEAKK heh ..**
-  
-•⩊•  ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
+                                              i love my friends !! YOU GUYS ARE SO PEAKK heh ..
+<p align=center>     
+ <txt width=25>•⩊•  ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
 
 <p align=center>
  <img width=15![image](https://github.com/user-attachments/assets/d99e6430-d798-47a9-89e3-d8ad54fad2f2) 
@@ -34,8 +36,11 @@ Once you get to know me really well...im a cool funny person! heh.
 <p align=center>
  <txt width=25> ───────── ⋆⋅☆⋅⋆ ─────────
 
- You can always find me sitting at the sth area!! >.< 
+<p align=center>
+ <txt width=25> You can always find me sitting at the sth area!! >.< 
  
- if u wanna be friends just w2i !🥹❤️
+ <p align=center>
+ <txt width=25>if u wanna be friends just w2i !🥹❤️
 
- Int freely^_^!
+ <p align=center>
+ <txt width=25>Int freely^_^!
