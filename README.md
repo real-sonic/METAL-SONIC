@@ -31,3 +31,11 @@ Once you get to know me really well...im a cool funny person! heh.
  
 <p align=center>
  <txt width=25> ‎【DISCORD!】 >> ultimate_.1
+<p align=center>
+ <txt width=25> ───────── ⋆⋅☆⋅⋆ ─────────
+
+ You can always find me sitting at the sth area!! >.< 
+ 
+ if u wanna be friends just w2i !🥹❤️
+
+ Int freely^_^!
