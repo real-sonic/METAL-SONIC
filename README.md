@@ -39,8 +39,6 @@ Once you get to know me really well...im a cool funny person! heh.
 <p align=center>
  <txt width=25> You can always find me sitting at the sth area!! >.< 
  
- <p align=center>
- <txt width=25>if u wanna be friends just w2i !🥹❤️
 
  <p align=center>
  <txt width=25>Int freely^_^!
