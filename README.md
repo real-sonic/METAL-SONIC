@@ -4,13 +4,12 @@
 ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚
 
 <p align=center>
- <txt width=25>Metal sonic me irl trust!
+ <txt width=20>Metal sonic me irl trust!
 
 <p align=center>
- <txt width=25>Heyhey!
-Once you get to know me really well...im a cool funny person! heh.
+ <txt width=25>Hey! Once you get to know me really well...im a cool funny person,heh.
 
-                                              i love my friends !! YOU GUYS ARE SO PEAKK heh ..
+                 i love my friends !! YOU GUYS ARE SO PEAKK heh ..
 <p align=center>     
  <txt width=25>•⩊•  ɪ ᴀᴍ ᴛʜᴇ ᴜʟᴛɪᴍᴀᴛᴇ ᴏᴠᴇʀʟᴏʀᴅ.
 
