@@ -40,4 +40,4 @@
  
 
  <p align=center>
- <txt width=25>Int freely^_^!
+ <txt width=25>i block & unfriend freely. (rarely tho!)
