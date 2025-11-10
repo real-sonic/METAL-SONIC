@@ -7,7 +7,7 @@
  <txt width=20>Metal sonic me irl trust!
 
 <p align=center>
- <txt width=25>Hey! Once you get to know me really well...im a cool funny person,heh.
+ <txt width=25>hello! feel free to int with silly me ok... heh! im cool trust!! i dont bite ok..? ☆〜（ゝ。∂）
 
                  i love my friends !! YOU GUYS ARE SO PEAKK heh ..
 <p align=center>     
