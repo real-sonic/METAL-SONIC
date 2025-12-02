@@ -31,7 +31,7 @@
 ( ˃` ⩌ ´˂ ) >> [ʀᴏʙʟᴏx!](https://www.roblox.com/share?code=f8ab67106b23f34982826f3b450deacc&type=Profile&source=ProfileShare&stamp=1758287294396)
  
 <p align=center>
- <txt width=25> ‎【DISCORD!】 >> ultimate_.1
+ <txt width=25> ‎【DISCORD!】 >> real.son1c
 <p align=center>
  <txt width=25> ───────── ⋆⋅☆⋅⋆ ─────────
 
