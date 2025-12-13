@@ -4,7 +4,7 @@
 ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚ ✧ ‿︵‿︵‿୨୧‿︵‿︵‿ ✧ ₊˚
 
 <p align=center>
- <txt width=20>Metal sonic and tails me irl trust!
+ <txt width=20>Metal sonic me irl trust!
 
 <p align=center>
  <txt width=25>feel free to int with silly me ok... heh! i dont bite ok..? ☆〜（ゝ。∂）
