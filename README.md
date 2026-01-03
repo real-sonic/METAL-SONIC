@@ -4,4 +4,6 @@
   
 ![image](https://github.com/user-attachments/assets/fb3a58de-cc1a-46e1-a4ce-144e501d0d4f)
 
+<sub><i>art credit: furMpAinO</i></sub>
+
 ---------------------------------------
