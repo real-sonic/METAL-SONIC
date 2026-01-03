@@ -1,4 +1,4 @@
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=real-sonic&color=4868A9&style=plastic&label=✶&abbreviated=true" /> </p>
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=real-sonic&color=0CA2CD&style=plastic&label=✶&abbreviated=true" /> </p>
   
 ---------------------------------------
   𝑳𝒆𝒕 𝒅𝒆𝒂𝒕𝒉 𝒄𝒐𝒏𝒔𝒖𝒎𝒆 𝒖𝒔 .  ☾
