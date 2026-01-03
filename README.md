@@ -16,6 +16,6 @@ he   /   they .
 <sub><i>art credit: furMpAinO</i></sub>
 <img width="1196" height="500" alt="image" src="https://github.com/user-attachments/assets/b665d29e-0cb9-49f5-b626-e96b660fec23" />
 
-discord: met0nic. 
+discord: meton1c. 
 
 ask before adding
