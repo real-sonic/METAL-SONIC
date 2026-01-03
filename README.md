@@ -6,14 +6,13 @@
 ![image](https://github.com/user-attachments/assets/555681e1-31de-4082-a1b4-7003263425b6)
 
 
-<sub><i>art credit: furMpAinO</i></sub>
+<sub><i>arts from: furMpAinO</i></sub>
 
 ---------------------------------------
 
 
 he   /   they . 
 
-<sub><i>art credit: furMpAinO</i></sub>
 <img width="1196" height="500" alt="image" src="https://github.com/user-attachments/assets/b665d29e-0cb9-49f5-b626-e96b660fec23" />
 
 discord: meton1c. 
