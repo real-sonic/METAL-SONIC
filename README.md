@@ -3,9 +3,19 @@
 ---------------------------------------
   𝑳𝒆𝒕 𝒅𝒆𝒂𝒕𝒉 𝒄𝒐𝒏𝒔𝒖𝒎𝒆 𝒖𝒔 .  ☾
   
-![image](https://github.com/user-attachments/assets/fb3a58de-cc1a-46e1-a4ce-144e501d0d4f)
+![image](https://github.com/user-attachments/assets/555681e1-31de-4082-a1b4-7003263425b6)
+
 
 <sub><i>art credit: furMpAinO</i></sub>
 
 ---------------------------------------
 
+
+he   /   they . 
+
+<sub><i>art credit: furMpAinO</i></sub>
+<img width="1196" height="500" alt="image" src="https://github.com/user-attachments/assets/b665d29e-0cb9-49f5-b626-e96b660fec23" />
+
+discord: met0nic. 
+
+ask before adding
